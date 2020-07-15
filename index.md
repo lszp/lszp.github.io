@@ -5,7 +5,7 @@
 
 男/1994.07.05/河南-周口
 
-**邮箱：**zhangpan_jsls@163.com
+**邮箱：** zhangpan_jsls@163.com
 
 ## 教育背景
 
