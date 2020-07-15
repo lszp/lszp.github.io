@@ -7,6 +7,8 @@
 
 **邮箱：** zhangpan_jsls@163.com
 
+**github: ** https://github.com/lszp
+
 ## 教育背景
 
 2014.09-2018.06
